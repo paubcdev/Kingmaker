@@ -9,3 +9,4 @@ Tenemos abiertas las opciones de que hacer con ella, que se encuentra en la ciud
 Llegamos de vuelta al campamento con los prisioneros rescatados, donde el Conde Galad le otorga al alcalde Abber el tíulo de Barón de Agresia, y deciden enclavarse en el castillo liberado.
 
 Decidimos ir a la ciudad a investigar y ver si podemos infiltrarnos.
+2024
